@@ -1,4 +1,4 @@
-#  
+#  catch and tame Script premium offers the most advanced catch and tame Script, with auto-sell and auto-upgrade. Perfect for dominating any match.
 
 
 
